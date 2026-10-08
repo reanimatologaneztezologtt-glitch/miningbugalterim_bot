@@ -1,1 +1,0 @@
-# miningbugalterim_bot
